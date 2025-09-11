@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **davidtran.forwork@gmail.com**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me: https://www.linkedin.com/in/msontran/ </h3>
 <p align="left">
 </p>
 
